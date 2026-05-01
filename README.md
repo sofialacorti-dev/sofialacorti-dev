@@ -2,7 +2,7 @@
 
 **`Futura `**
 
-Me chamo Sofia Lacorti Oliveira, tenho 19 anos e sou de Minas Gerais. Concluí o curso técnico em Meio Ambiente no Instituto Federal de Minas Gerais (IFMG – GV) e atualmente estou no 3º período do Bacharelado em Sistemas de Informação na UFOP.
+Me chamo Sofia Lacorti Oliveira, tenho 20 anos e sou de Minas Gerais. Concluí o curso técnico em Meio Ambiente no Instituto Federal de Minas Gerais (IFMG – GV) e atualmente estou no 4º período do Bacharelado em Sistemas de Informação na UFOP.
 
 ---
 
